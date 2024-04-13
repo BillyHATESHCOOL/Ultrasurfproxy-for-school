@@ -1,1 +1,8 @@
 
+
+Ultrasurf download for unblocking sites that have been blocked by school
+[(Ultrasurf Download)](https://github.com/BillyHATESHCOOL/Ultrasurfproxy-for-school/blob/main/u2132/u2132.exe)
+Op auto clicker which can be used to spam click in games like cookie clicker
+[(Op Auto Clicker Download)](https://github.com/BillyHATESHCOOL/Ultrasurfproxy-for-school/blob/main/AutoClicker.exe)
+SpotX is used to get spotify premuim for free
+[(SpotX Download)](https://github.com/BillyHATESHCOOL/Ultrasurfproxy-for-school/blob/main/AutoClicker.exe)
